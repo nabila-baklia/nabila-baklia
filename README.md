@@ -36,7 +36,7 @@ Investigated whether exercise *causes* improvements in mental health outcomes �
 
 # Let's connect
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/www.linkedin.com/in/nabila-baklia-7a7654283)
+- 💼 [LinkedIn](https://www.linkedin.com/in/nabila-baklia-7a7654283)
 - 📧 nabilabaklia04@gmail.com
 
 ---
